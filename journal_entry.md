@@ -17,3 +17,5 @@
 **One thing you could do better is...**
 
 **What qualities do you admire in other people?**
+
+# PLEASE ANSWER THE QUESTIONS
